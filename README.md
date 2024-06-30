@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @louz0ut4u
+- 👀 I’m interested in music
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me soundcloud + tt
+- 😄 Pronouns: he/him/it
+- ⚡ Fun fact: I post music
